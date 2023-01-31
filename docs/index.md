@@ -1,0 +1,1 @@
+# proricanje sudbine

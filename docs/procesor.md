@@ -1,0 +1,1 @@
+procesiraju se dobijeni podaci
